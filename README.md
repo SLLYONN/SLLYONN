@@ -3,4 +3,4 @@
 <p align="center"> ♡  <a href="https://github.com/walkingdeathtrap">@walkingdeathtrap</a>
 <p align="center">  ♡  <a href="https://github.com/PLUZ-ULTRA">@PLUZ-ULTRA </a> ,♡ <a href="https://github.com/yaoidreamin">@yaoidreamin</a> , <a href="https://github.com/AmyLovesSonic">@AmyLovesSonic</a> , <a href="https://github.com/sxshaae">@sxshaae </a> ,  <a href="https://github.com/SukiiChu">@SukiiChu</a> , <a href="https://github.com/Vampire-sucker">@Vampire-sucker</a>
 <p align="center"> <a<p align="center">  <a href="https://github.com/SmartFoxNerd">@SmartFoxNerd</a>
- <p align="center"> ♡  <a href="https://github.com/ramun3">@ramun3</a>      <p align="center"> <a<img width="400" height="32" alt="IMG_2347" src="https://github.com/user-attachments/assets/bcc0ab63-bdaf-4949-8ce9-19bc751128b5" />
+ <p align="center"> ♡  <a href="https://github.com/ramun3">@ramun3</a>    
