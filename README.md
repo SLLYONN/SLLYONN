@@ -7,4 +7,4 @@
           <p align="center"> ♡  <a href="https://github.com/ffoxxtorre">@ffoxxtorre</a>  
                                                                                                        
    <img width="400" height="32" alt="IMG_2347" src="https://github.com/user-attachments/assets/d1140fb7-2a34-422a-a1b2-dac88c632856" />
-<img width="736" height="736" alt="بدون اسم275_20251229231402" src="https://github.com/user-attachments/assets/e5d473f4-e56b-4dd1-8a2c-6599040e6b44" />
+<img width="736" height="736" alt="بدون اسم275_20251229231523" src="https://github.com/user-attachments/assets/005839a8-fd15-41ad-914f-64d083f33ebf" />
