@@ -5,3 +5,4 @@
 <p align="center"> <a<p align="center">  <a href="https://github.com/SmartFoxNerd">@SmartFoxNerd</a>
  <p align="center"> ♡  <a href="https://github.com/ramun3">@ramun3</a>    
           <p align="center"> ♡  <a href="https://github.com/ffoxxtorre">@ffoxxtorre</a>  
+                                                                                                           <img width="400" height="32" alt="IMG_2347" src="https://github.com/user-attachments/assets/d1140fb7-2a34-422a-a1b2-dac88c632856" />
