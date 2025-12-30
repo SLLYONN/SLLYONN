@@ -5,8 +5,12 @@
 <p align="center">  ♡  <a href="https://github.com/PLUZ-ULTRA">@PLUZ-ULTRA </a> ,♡ <a href="https://github.com/yaoidreamin">@yaoidreamin</a> , <a href="https://github.com/AmyLovesSonic">@AmyLovesSonic</a> , <a href="https://github.com/sxshaae">@sxshaae </a> ,  <a href="https://github.com/SukiiChu">@SukiiChu</a> , <a href="https://github.com/Vampire-sucker">@Vampire-sucker</a>
 <p align="center"> <a<p align="center">  <a href="https://github.com/SmartFoxNerd">@SmartFoxNerd</a>
  <p align="center"> ♡  <a href="https://github.com/ramun3">@ramun3</a>    
-          <p align="center"> ♡  <a href="https://github.com/ffoxxtorre">@ffoxxtorre</a>  
-                                                                                                       
+          <p align="center"> ♡  <a href="https://github.com/ffoxxtorre">@ffoxxtorre</a> 
+ <p align="center"> ♡  <a href="https://github.com/HELLSlNG">@HELLSlNG</a> PLEASE FOLLOW <img width="500" height="500" alt="IMG_2532" src="https://github.com/user-attachments/assets/4f3e7417-1c01-4de7-a435-9844f9ef9767" />
+
+
+
+            
    <img width="400" height="32" alt="IMG_2347" src="https://github.com/user-attachments/assets/d1140fb7-2a34-422a-a1b2-dac88c632856" />
 <img width="736" height="736" alt="بدون اسم275_20251229232719" src="https://github.com/user-attachments/assets/c077842b-89fa-4a40-9293-f796fe6f465a" />
 
