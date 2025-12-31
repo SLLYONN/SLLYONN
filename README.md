@@ -1,6 +1,5 @@
   <img width="400" height="32" alt="IMG_2347" src="https://github.com/user-attachments/assets/88d779b0-c365-4e44-81fa-3e7507e97a38" />
-[<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/58454316-5b82-4c9a-807e-4f537ff716c0" />](https://gyiuuu508.straw.page/)
-  
+[<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/58454316-5b82-4c9a-807e-4f537ff716c0" />](https://gyiuuu508.straw.page/)  
 
 <img width="736" height="736" alt="بدون اسم273_20251226233320" src="https://github.com/user-attachments/assets/f79514fb-f58a-4e99-bfb9-f1b1510c88a2" />
 <p align="center"> ♡  <a href="https://github.com/walkingdeathtrap">@walkingdeathtrap</a>
