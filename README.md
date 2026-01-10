@@ -6,8 +6,6 @@
 <p align="center"> <a<p align="center">  <a href="https://github.com/SmartFoxNerd">@SmartFoxNerd</a>
  <p align="center"> ♡  <a href="https://github.com/ramun3">@ramun3</a>    
           <p align="center"> ♡  <a href="https://github.com/ffoxxtorre">@ffoxxtorre</a> 
- <img width="500" height="500" alt="IMG_2532" src="https://github.com/user-attachments/assets/4f3e7417-1c01-4de7-a435-9844f9ef9767" />
-
 
 
             
