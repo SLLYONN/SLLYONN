@@ -1,4 +1,6 @@
-![A87BFDE3-93DC-4FE9-89FD-3ECDEE6655EE](https://github.com/user-attachments/assets/0485ff3d-fa83-40ff-9872-4327a593a7e0)
+　ᴛᴏɢᴇᴛʜᴇʀ 　　　　ɪɴ 　　　　ᴅᴇᴀᴛʜ　　　　　　>⩊< 
+ 
+ ![74BF4F8B-3310-4129-AD87-D126199C96C7](https://github.com/user-attachments/assets/5fdec09b-f034-416e-b906-484329b44b67)
 
 
   **[STRAW👠PAGE](https://sii828.straw.page/)**
